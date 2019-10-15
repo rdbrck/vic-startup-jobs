@@ -243,7 +243,7 @@ Keep in mind that companies may have job postings on their own site that are not
 
 #### [Zynga Canada](https://www.zynga.com/)
 
-#### [SmartBallot](https://www.smartballot.ca)
+#### [SmartBallot by OneFeather](https://www.smartballot.ca)
 * [Digital Marketing Specialist](https://docs.google.com/document/d/1QHdXlfboeTc9wSKVsKru3A6tYjPgztqxmaEOnoEUazw/edit?usp=sharing)
 
 ---
